@@ -1,1 +1,1 @@
-**i had a grat tim when i was chickacrit, i had los abimakup on ma fass**   <img width="640" height="489" alt="image" src="https://github.com/user-attachments/assets/4147445a-1ecb-40c0-ba16-8e87a9788289" /> (cred to artist and oc respecfully check their acc out🦊)
+*I have nothing here rn
